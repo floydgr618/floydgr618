@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @floydgr618
+- 👋 Hi, everyone, I’m @floydgr618
 - 👀 I’m interested in univers exploring
 - 🌱 I’m currently learning Star Ship
 - 💞️ I’m looking to collaborate on ...
